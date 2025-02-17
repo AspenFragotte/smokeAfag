@@ -8,7 +8,7 @@
 </p>
 
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1251572610916159642/1341132780867813416/pobrane.png?ex=67b4e2bc&is=67b3913c&hm=29c3a9c12cf7f520c612c9e51f6e3b8230af3d0d04de61e67d085ea33bac7b2c&=&format=webp&quality=lossless&width=1440&height=123" />
+  <img src="https://media.discordapp.net/attachments/1251572610916159642/1341149246182920303/Zrzut_ekranu_2025-02-17_214756-removebg-preview.png?ex=67b4f211&is=67b3a091&hm=d5f05b86e0f7e3417fc2daf02b70b0d87cb95f80cabe2fc4cde9cde79f5ea2be&=&format=webp&quality=lossless&width=1035&height=88" />
 </p>
 
-   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3175kslxvkqtdo7eiewjlatvrpui&cover_image=false&theme=default&show_offline=true&background_color=121212&interchange=false&bar_color=ff0095)](https://spotify-github-profile.kittinanx.com/api/view?uid=3175kslxvkqtdo7eiewjlatvrpui&redirect=true)
+   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3175kslxvkqtdo7eiewjlatvrpui&cover_image=false&theme=default&show_offline=true&background_color=121212&interchange=false&bar_color=ff0095)](https://spotify-github-profile.kittinanx.com/api/view?uid=3175kslxvkqtdo7eiewjlatvrpui&redirect=true)
