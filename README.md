@@ -8,7 +8,7 @@
 </p>
 
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1251572610916159642/1341149246182920303/Zrzut_ekranu_2025-02-17_214756-removebg-preview.png?ex=67b4f211&is=67b3a091&hm=d5f05b86e0f7e3417fc2daf02b70b0d87cb95f80cabe2fc4cde9cde79f5ea2be&=&format=webp&quality=lossless&width=1035&height=88" />
+  <img src="https://media.discordapp.net/attachments/1251572610916159642/1341150558349824092/Zrzut_ekranu_2025-02-17_215315-removebg-preview.png?ex=67b4f34a&is=67b3a1ca&hm=609e3147a6e97a9f96b011d0b6a04decf6936e6b36a656e67def03e7275363ee&=&format=webp&quality=lossless&width=898&height=120" />
 </p>
 
    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3175kslxvkqtdo7eiewjlatvrpui&cover_image=false&theme=default&show_offline=true&background_color=121212&interchange=false&bar_color=ff0095)](https://spotify-github-profile.kittinanx.com/api/view?uid=3175kslxvkqtdo7eiewjlatvrpui&redirect=true)
